@@ -1,3 +1,3 @@
-20253234 Yoo Jisu
+20253234    Yoo Jisu
 
 Kookmin Univ. SW
